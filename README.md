@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sampadabhat
+- 👀 I’m interested in Freelance Projects
+- 🌱 I’m currently learning Human computer Interaction
+- 📫  Reach out to me at sambhat@iu.edu
